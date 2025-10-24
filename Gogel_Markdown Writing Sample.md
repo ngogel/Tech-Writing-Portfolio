@@ -87,7 +87,8 @@ In order to keep your device working optimally, clean after each use. Ensure all
 
 2. Screw on the lid of the bowl.
 
-3. Insert the pipe, vortex side first, into the hole in the body that is furthest from the bowl. Adjust the position of the pipe so that it is not blocking the bowl.
+3. Insert the pipe, vortex side first, into the hole in the body that is furthest from the bowl. Adjust the position of the pipe so that it is not
+   blocking the bowl.
 
 4. Holding the device in one hand and a lighter in the other, light then smoke from the bowl as you normally would.
 
@@ -103,17 +104,21 @@ In order to keep your device working optimally, clean after each use. Ensure all
 
 5. Light the lighter. The flame should be even with the product-end of the tube.
 
-6. Inhale gently until the pipe is filled with smoke, then cease lighting the tube. Continue to inhale gently using your lungs. When you feel you've inhaled enough, hold in the smoke for as long as it feels comfortable. Slowly exhale the smoke.
+6. Inhale gently until the pipe is filled with smoke, then cease lighting the tube. Continue to inhale gently using your lungs. When you feel
+   you've inhaled enough, hold in the smoke for as long as it feels comfortable. Slowly exhale the smoke.
 
 ## Quick Care Guide
 
-Remove the lighter and product before cleaning. All parts of this smoking device are dishwasher safe. Screens can be kept inside the bowl during washing. We recommend placing your Vortex Ai1 parts in a dishwasher-safe basket.
+Remove the lighter and product before cleaning. All parts of this smoking device are dishwasher safe. Screens can be kept inside the bowl 
+during washing. We recommend placing your Vortex Ai1 parts in a dishwasher-safe basket.
 
-In order to keep your device working optimally, clean after each use. Ensure all parts are dry before storing. Store all parts of your device in its case.
+In order to keep your device working optimally, clean after each use. Ensure all parts are dry before storing. Store all parts of your device in its 
+case.
 
 **Disclaimer:**
 
-*Always speak with your doctor or healthcare provider before beginning any treatment. This device is intended for marijuana use only. Marijuana use should always comply with local, state, and federal laws, rules, and regulations.*
+*Always speak with your doctor or healthcare provider before beginning any treatment. This device is intended for marijuana use only. Marijuana 
+use should always comply with local, state, and federal laws, rules, and regulations.*
 
 ## Contact Us
 
