@@ -18,7 +18,7 @@ Tools used: Microsoft Word (original version), Markdown (current version)
 
 
 
-\# Vortex Ai1 Smoking Device
+# Vortex Ai1 Smoking Device
 
 
 
